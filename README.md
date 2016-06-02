@@ -1,2 +1,2 @@
 # hello-world
-španerski repository
+ja sam eugen i crnac sam u duši
